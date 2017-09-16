@@ -1,2 +1,0 @@
-# sulygirl.github.io
-hello
